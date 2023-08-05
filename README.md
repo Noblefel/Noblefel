@@ -1,4 +1,4 @@
-#### <p align="center">🔮 The key of unlocking the door to inner peace is not found in the material world, but in the mysteries of the self</p>
+#### <p align="center"> A mindful pause can transform a clash of egos into a trainquil bridge that spans even the widest divides </p>
 
 ##
  
